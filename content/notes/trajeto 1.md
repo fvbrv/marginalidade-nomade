@@ -1,0 +1,6 @@
+---
+title: "trajeto 1"
+---
+28-06-22
+
+Ao seguir pela linha encontro uma nova entrada, um novo caminho para os trilhos. Há poucas casas, alguns animais vivos e outros mortos. Crianças passam pelo caminho ermo ao meio das ossadas e adentram na mata. Elas me perguntaram se um cavalo morreu. O caminho se abre mas me indica a um destino incerto no qual nunca percorri. Há um "menir" que representa a utilização de um caminho.  O local da máquina foi tomado pela vegetação - que superou a tecnologia, se assemelha a um oásis, uma paisagem onírica. Logo após o "muro" caminhei para uma última clareira. Não foi permitido fotografar pelo comando. Na saída da clareira vi as mesmas crianças que me "convidaram" ao caminho. No caminho "deserto", avistei a primeira zona autonoma temporária: crianças brincando com suas pipas próximo a um ferro velho, entre um caminhão estacionado e o que restou da calçada em uma via movimentada. Uma delas me nota e cumprimenta, passar por baixo do caminhão para soltar a pipa. O centro da brincadeira muda, já não é mais próxima à via, entretanto, está no meio de um local pretensamente vazio e à margem dos trilhos.
