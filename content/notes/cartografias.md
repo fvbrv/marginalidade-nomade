@@ -1,7 +1,6 @@
 ---
 title: "cartografias"
 ---
-
 Prática da aprendizagem sobre o caminhar e a percepção urbana em nosso território multifacetado, das cidades dentro de outras cidades. Encontramos em territórios [des]conhecidos paisagens cotidianas vistas e sentidas por outra potencialiadade sensivel e critica. As possibilidades de percorrer as ruas, os terrenos vazios e a cidade habitada são diversas, traçamos desde modo linhas de fuga para outras existencialidades.  
 
 ## nômadismo marginal

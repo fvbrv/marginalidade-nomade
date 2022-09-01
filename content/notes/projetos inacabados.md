@@ -1,7 +1,6 @@
 ---
 title: "projetos inacabados"
 ---
-
 Projetos realizados, inacabados ou abandonados.
 
 ## [[notes/colagem|Arte]]

@@ -1,5 +1,5 @@
 ---
-title: marginalidade nômade 
+title: "marginalidade nômade"
 ---
 [[notes/bio|sobre]] |  [[notes/cartografias|mapas marginais]] | [[notes/projetos inacabados|projetos inacabados]]
 
